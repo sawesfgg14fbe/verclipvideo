@@ -1,6 +1,11 @@
 En los últimos días, las redes sociales han sido el escenario de una creciente controversia que involucra a la influencer española Lucía Correa. Los rumores sobre un supuesto video filtrado han generado un intenso debate entre sus seguidores y el público en general, desatando una búsqueda masiva impulsada tanto por la curiosidad como por el morbo.
 
-Sin embargo, al examinar los hechos, es importante separar la verdad de las especulaciones. Un portal conocido como Cristoferideas ha sido señalado como el principal detonante de esta polémica, al afirmar que posee el supuesto material filtrado.
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
+📺📱👉◄◄🔴  https://tinyurl.com/fn84hrnu
+
 
 Estas declaraciones han alimentado aún más la viralidad del tema, llevando a muchos usuarios a buscar pruebas sobre la existencia del video. Sin embargo, hasta el momento no se han encontrado evidencias concretas que respalden la existencia de dicho contenido.
 
