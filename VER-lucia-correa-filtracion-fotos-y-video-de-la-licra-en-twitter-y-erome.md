@@ -1,6 +1,12 @@
 Recientemente, la creadora de contenido conocida como Lucia Correa se ha convertido en tendencias tras la supuesta filtración contenido intimo en fotos y videos explícitos que han capturado la atención de sus seguidores. Sumando a esto la viralización del video controversial titulado como "leggins montaña", te contamos los detalles.
 
-Lucia una popular creadora de contenido en influencer de origen española ha encendido las redes sociales, después que múltiples internautas comenzaran a difundir enlaces que supuestamenten contienen escenas explicitas de creadora.
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
 
 Este fenómeno social, ha llevado a divagar sobre, consultas como ¿dónde ver las fotos filtradas de Lucia Correa en Twitter?, ¿es verdad que se filtró un video privado de la influencer Lucia en Cristoferideas?, esto con la intención de encontrar respuestas a las especulaciones de sus seguidores.
 
